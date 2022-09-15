@@ -1,0 +1,2 @@
+# spandan
+winsgpan
